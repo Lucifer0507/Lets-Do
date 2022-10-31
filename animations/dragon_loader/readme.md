@@ -1,0 +1,1 @@
+<img src="./Hfyo0aR.gif" width="100%">
